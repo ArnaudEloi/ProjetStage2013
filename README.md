@@ -1,2 +1,1 @@
-crumble
-sdvsd,nld,qv;ls,dùvlk,
+Je suis blond
