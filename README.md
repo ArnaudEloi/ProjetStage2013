@@ -1,1 +1,2 @@
-Je suis blond
+Je suis blond et j'aime les poires
+
