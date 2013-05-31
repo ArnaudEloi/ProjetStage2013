@@ -1,2 +1,1 @@
-Je suis blond et j'aime les poires
-
+Je suis un fichier vierge
